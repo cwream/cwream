@@ -6,4 +6,4 @@
 𐇵 ꈍ ᴗ ꈍ  )⠀  ─ ﹫**skins** .  坦 ( my ponies )
 do not copy my skins ; plain and simple ☆ if you want to take inspiration from my skins, ask or whisper me for permission !!
 
-𝜗𝜚　𓂃　　 **talking**   •   i always prefer talking rather than whispering, but please tell me if you're not comfortable with mainly talking publicly
+𝜗𝜚　𓂃　　 **talking**ㅤ|ㅤi always prefer talking rather than whispering, but please tell me if you're not comfortable with mainly talking publicly !!
