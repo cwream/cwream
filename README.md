@@ -27,3 +27,24 @@
 　　　♡　　also, sorry if i dont respond right away to you, i might be busy, afk, or eating something! i sometimes respond to whispers complimenting my skins, just know that if i dont respond to you, i still appreciate the thought!
 
 — — — — — — — —
+
+![Image](https://github.com/user-attachments/assets/809a2727-2398-4f39-a18d-ccaeafbcdc83)
+![Image](https://github.com/user-attachments/assets/71fe4e4a-c44d-4a85-aa01-f4060dde7240)
+![Image](https://github.com/user-attachments/assets/18860cf3-c476-479d-a0da-2ce1e29a549e)
+![Image](https://github.com/user-attachments/assets/12698f96-5d61-47e0-9cdb-7cc85788ebd9)
+![Image](https://github.com/user-attachments/assets/cfe8934a-07c6-4bc1-a520-a424a62da971)
+![Image](https://github.com/user-attachments/assets/02d85075-ccfe-409b-b8b3-2188fdadd1ee)
+![Image](https://github.com/user-attachments/assets/59f35844-8971-4e87-82ec-556753dbadc3)
+![Image](https://github.com/user-attachments/assets/a1681641-5f9a-43aa-b537-d299de833192)
+![Image](https://github.com/user-attachments/assets/332c9750-3f8a-41d4-b11e-bc414cf4dbf3)
+![Image](https://github.com/user-attachments/assets/8fd053fb-4bd1-4ccb-b841-5f5ed18b9a0e)
+![Image](https://github.com/user-attachments/assets/e75b5f63-dd30-450d-a72d-ea122cde6196)
+![Image](https://github.com/user-attachments/assets/51a7a424-b9ca-4f5c-bde2-a0c80e8c0768)
+![Image](https://github.com/user-attachments/assets/c52a91fa-22e0-4ce8-9578-d8d17e459042)
+![Image](https://github.com/user-attachments/assets/d977cc3f-6fa9-4050-9f6d-1e74047b7caa)
+![Image](https://github.com/user-attachments/assets/188446dd-0ac0-4f55-9254-4caf95c5b2b2)
+![Image](https://github.com/user-attachments/assets/5947581c-3f03-45e7-9b6c-b08b07689747)
+![Image](https://github.com/user-attachments/assets/7082f574-5bd0-492d-b7d3-cb5efd783807)
+![Image](https://github.com/user-attachments/assets/2e469279-52fb-41af-952c-c38c35cff899)
+
+— — — — — — — —
