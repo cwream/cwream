@@ -2,7 +2,7 @@
 
 — — — — — — — —
 
-　　　♡　　**c + h**ㅤ◡◡ㅤtotally fine with cuddles! also okay with sibling / friend c + h !! ship cuddles i'll usually only do with friends, or a ship that i lovee ; i'm not comfortable with ship cuddles from a ship i don't support ( aka proships, or ships that don't make sense ) or with strangers
+　　　♡　　**c + h**ㅤ◡◡ㅤtotally fine with cuddles! also okay with sibling / friend c + h !! ship cuddles i'll usually only do with friends, or a ship that i lovee - PIXELSHARK, MADOHOMU, SOUKOKU INT ; i'm not comfortable with ship cuddles from a ship i don't support ( aka proships, or ships that don't make sense ) or with strangers
 
 　　　♡　　**skins**ㅤ◡◡ㅤdo not copy my skins ; plain and simple. if you want to take inspiration from my skins, ask or whisper me for permission
 
@@ -21,6 +21,8 @@
    idle ( away ): usually either making a pony, or afk! 
    
    do not disturb ( busy ): usually afk, do not interact unless a friend~
+
+   extra: if i'm hiding myself then it probably means DO NOT INTERACT im probably sad or in a bad mood ( will not respond to you )
 
 — — — — — — — —
 
