@@ -15,7 +15,5 @@
 
 <p align="center">ꪆ୧⠀⠀⌒⠀⠀ly𝐧ey⠀⠀mualani⠀⠀fur𝒊na⠀⠀⠀✸⠀𓎟𓎟𓎡</p>
 
-<p align="center">𝒔ocials⠀⠀⭑⠀⠀carrd</p>
-
 <p align="center">┈ ┈ ┈ ┈ ┈ ┈ ┈ ୨♡୧ ┈ ┈ ┈ ┈ ┈ ┈ ┈</p>
 <p align="center">⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣</p>
