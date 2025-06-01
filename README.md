@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="800" height="386" src="https://github.com/user-attachments/assets/6a36e79f-9a65-40cc-aed4-2eec5ae21ed8">
+  <img width="800" height="200" src="https://github.com/user-attachments/assets/d13c6bb9-24a5-49b8-8046-931b43deb08d">
 </p>
 
 <p align="center">⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢</p>
@@ -17,3 +17,7 @@
 
 <p align="center">┈ ┈ ┈ ┈ ┈ ┈ ┈ ୨♡୧ ┈ ┈ ┈ ┈ ┈ ┈ ┈</p>
 <p align="center">⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣</p>
+
+<p align="center">
+  <img width="800" height="200" src="https://github.com/user-attachments/assets/d19ed057-1c7b-4935-849b-766d0efa0946">
+</p>
